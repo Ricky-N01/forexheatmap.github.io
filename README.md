@@ -1,0 +1,1 @@
+# forexheatmap.github.io
